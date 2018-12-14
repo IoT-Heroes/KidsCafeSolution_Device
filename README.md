@@ -1,0 +1,1 @@
+# KidsCafeSolution_Device
